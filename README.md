@@ -8,6 +8,7 @@ Sometimes the mind is the only salvation from within, whenever the mind cannot g
 Just remember, they want to read your thoughts, through the actions you took to cause you to write that wonderful piece of poetry in motion. They don't want empty words, that posses no actions whatsoever behind their meaning. They want absolute truth with absolute reason. Get right to the point...
 
 
+
 ASCRIPTION
 
 The ascription of the so-called meaning of life and how it's supposed to be
