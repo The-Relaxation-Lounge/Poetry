@@ -17,8 +17,8 @@ the true meaning of truth? Which came first, the chicken or the egg? The true
 meaning of life might not have any subscriptive, purposeful meaning at all.
 The superior Gods worshipped today will become the inferior Gods, unworshipped
 tomorrow. What life conceals may never be revealed; we grow, we live and
-we die. Accept it. So live in the moment, because life is living in the ever
-now and ever new...
+we die. Accept it. So live in the moment, because life is about living in the
+ever now and ever new...
 
 Joseph C. Richardson
 
