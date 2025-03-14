@@ -23,3 +23,4 @@ ever now and ever new...
 Joseph C. Richardson
 
 https://youtu.be/Xh6_CAacx9E?si=rFI26S3iFF2we8eN
+![Ascription](https://github.com/user-attachments/assets/6cae38f3-ba8f-4087-bdca-0ce9e1f981f3)
