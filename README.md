@@ -26,6 +26,8 @@ https://youtu.be/Xh6_CAacx9E?si=rFI26S3iFF2we8eN
 
 ![Ascription](https://github.com/user-attachments/assets/6cae38f3-ba8f-4087-bdca-0ce9e1f981f3)
 
+The Guilt Snake
+
 The Guilt Snake is a creature, unlike no other. The Guilt Snake is an extremely sly,
 opportunistic creature, that stalks and hunts its prey from within the soul. It lives
 and thrives to constantly constrict it; to crush it, until it eventually consumes the
