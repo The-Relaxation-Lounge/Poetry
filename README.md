@@ -26,17 +26,4 @@ https://youtu.be/Xh6_CAacx9E?si=rFI26S3iFF2we8eN
 
 ![Ascription](https://github.com/user-attachments/assets/6cae38f3-ba8f-4087-bdca-0ce9e1f981f3)
 
-The Guilt Snake
-
-The Guilt Snake is a creature, unlike no other. The Guilt Snake is an extremely sly,
-opportunistic creature, that stalks and hunts its prey from within the soul. It lives
-and thrives to constantly constrict it; to crush it, until it eventually consumes the
-soul. The Guilt Snake seeks out those who carry self guilt for things they didn't do
-wrong, for things they didn't do right. Once the Guilt Snake finds its prey, it takes
-its sweet time to consume it. Although at the same time, the Guilt Snake constricts
-and fills its prey with self guilt. And if not treated in time, the Guilt Snake will
-not only destroy everything in its prey. It will eventually destroy its soul. And the
-only way to destroy the Guilt Snake, is to forgive yourself as well as forgiveness for
-others, who had done you wrong. The Guilt Snake can strike at any moment, deeply from
-within, and without warning. If you dwell on self guilt, the Guilt Snake will quietly
-sneak and slither into you to consume you, until you eventually become... The Guilt Snake.
+![The Guilt Snake](https://github.com/user-attachments/assets/14b1f51f-bb7d-442b-9b5f-17f08d16aac6)
