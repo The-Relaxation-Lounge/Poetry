@@ -1,4 +1,8 @@
 # Poetry
+
+Hear all my poetry in audio, with the help of Gemini music. Each short audio video track is my poetry
+and some new ones. I hope you enjoy them: https://www.youtube.com/@Compuscience-Python-Manuals/shorts
+
 Poetry Made to Enlighten and Inspire
 
 My Best Poetry by Joseph C. Richardson
